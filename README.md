@@ -114,6 +114,6 @@
 ## 联系我
 非常愿意有相同想法的人与我交流，并实现这个"愚蠢"想法！！
 
-邮箱 : leeyr338@gmail.come
+邮箱 : leeyr338@gmail.com
 
 微信号: liyaorong3401
