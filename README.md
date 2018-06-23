@@ -49,3 +49,11 @@
 
 ## 达成目标
   所有参与主体都有自由选择权。做为群众，你可以选择不看广告，不捡钱！
+  
+
+## 相似想法参考
+[BAT](https://www.basicattentiontoken.org)
+
+## 联系我
+邮箱 : leeyr338@gmail.come
+微信号: liyaorong3401
